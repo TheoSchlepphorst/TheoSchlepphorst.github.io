@@ -5,4 +5,5 @@
 
 ## My links: 
 
-             [YouTube](https://www.youtube.com/channel/UCLHOySOyhZMsaNUERKIEgIA)
+####YouTube(https://www.youtube.com/channel/UCLHOySOyhZMsaNUERKIEgIA)
+####Twitch(https://www.twitch.tv/lol_theo2020)
